@@ -1,0 +1,1 @@
+Potato, Cornflour, oil, disgusting veggies(onion,capsicum, garlic, chilli), salt, chilli pepper, chilli sauce, soya sauce, tomato sauce, seasme seeds, honey.

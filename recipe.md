@@ -1,0 +1,1 @@
+First coat potato with cornflour then fry it. After that make the sauce(add disgusting veggies to it) then add fried potatoes to it then mix well. after that serve it as you like.
